@@ -1,3 +1,3 @@
 # zalupa
 
-![Download](https://github.com/tronicav/zalupa/assets/149973973/f1dc69e9-471e-45b9-935c-5e1deba5dda2)
+![Download](https://github.com/tronicav/zalupa/assets/149973973/9cba52b3-1bc9-40b9-9e0c-331441d2d68e)
